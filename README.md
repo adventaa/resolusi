@@ -1,0 +1,2 @@
+# resolusi
+menyimpan rencana kedepannya
